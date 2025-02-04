@@ -3,7 +3,7 @@
 ##### Appalachian State University, In These Mountains Initiative at SouthArts
 browncw5@appstate.edu / calebbrownmedia@gmail.com
 828-424-1457
-<a href="https://calebbrownmedia.com">calebbrownmedia.com</a>
+<a href="https://www.calebbrownmedia.com">calebbrownmedia.com</a>
 <img src = "IMG_9901.jpg">
 
 ### Summary
