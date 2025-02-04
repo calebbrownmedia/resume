@@ -27,10 +27,11 @@ I am also a fieldworker for SouthArts' In These Mountains Documentary Initiative
 **2023:** *Donde se Sostienen Los Raices // Where Our Roots Lie*, Looking Glass Gallery, Boone, NC, USA
 
 ### Presentations
-**2025**: *Navigating the History and Evolution of Professional Wrestling in Appalachia*, Appalachian Studies Assocation Conference at Tennessee Tech University, TN (forthcoming)
+<p>**2025**: *Navigating the History and Evolution of Professional Wrestling in Appalachia*, Appalachian Studies Assocation Conference at Tennessee Tech University, TN (forthcoming)
           *Applying Environmental Justice Lessons from Non-Appalachian Natural Disasters to the Appalachian Context*, Appalachian Studies Assocation Conference at Tennessee Tech University, TN (forthcoming)
-          *Environmental Injustices and Community Resilience in Western North Carolina After Hurricane Helene*, Appalachian Studies Assocation Conference at Tennessee Tech University, TN (forthcoming)
-**2024**: *Fiber, Foodways, and Football: Diverse Approaches to Documenting Contemporary Life in Appalachia*, Appalachian Studies Association Conference at Western Carolina University, NC
-          *In These Mountains - Students and the Future of Documentation*, Appalachian Studies Association Conference at Western Carolina University, NC
+          *Environmental Injustices and Community Resilience in Western North Carolina After Hurricane Helene*, Appalachian Studies Assocation Conference at Tennessee Tech University, TN (forthcoming)</p>
+
+<p>**2024**: *Fiber, Foodways, and Football: Diverse Approaches to Documenting Contemporary Life in Appalachia*, Appalachian Studies Association Conference at Western Carolina University, NC
+          *In These Mountains - Students and the Future of Documentation*, Appalachian Studies Association Conference at Western Carolina University, NC</p>
 
 
